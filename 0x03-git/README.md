@@ -1,1 +1,1 @@
-I made it into the ALX SE program
+I will finish strong
